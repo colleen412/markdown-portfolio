@@ -1,1 +1,1 @@
-[LinkedIn link] (www.LinkedIn.com/in/ColleenMEOLeary)
+[LinkedIn link] (https://www.LinkedIn.com/in/ColleenMEOLeary)
